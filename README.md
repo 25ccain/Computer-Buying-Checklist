@@ -1,1 +1,1 @@
-# Computer-Buying-Checklist
+# Computer Buying Checklist
